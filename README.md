@@ -1,7 +1,5 @@
 
-![公司的项目.png](https://upload-images.jianshu.io/upload_images/6709174-4b217cb5f07b1f6f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-公司的项目，求支持，如果发现什么问题，可以留言反应，感激不尽
 
 ![QQ20180614-161704.gif](https://upload-images.jianshu.io/upload_images/6709174-509eb0c4fb9f5274.gif?imageMogr2/auto-orient/strip)
 
